@@ -1,5 +1,5 @@
 - 👋 Hello! I’m Bonny Yu
-- 👀 Interested in product design, developmental psychology, and transportation systems. 
+- 👀 Interested in product design, developmental psychology, web3/crypto, and finance. 
 - 💞️ Looking to collaborate on hackathon projects or startups.
 - 📫 Reach me at bonnyyu00@gmail.com
 
